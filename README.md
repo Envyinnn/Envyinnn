@@ -1,7 +1,7 @@
 ### 👋 Hey everyone, I'm Dan! Online I go by Envyin 😶‍🌫️
 
+![tumblr_722fb07f13764fb24e8b3739d20c2c9c_03f33880_1280](https://user-images.githubusercontent.com/100398431/156291403-6740f6b0-a65e-473a-9058-3be20e6cb30b.gif)
 
-![tenor](https://user-images.githubusercontent.com/100398431/156267079-0e7532f9-06d9-4918-b823-2c1cd4b3b235.gif)
 
 
 ### My Focus
